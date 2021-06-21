@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @slaughteringcocks
-- 👀 I’m interested in your mom hmu
-- 🌱 I’m currently learning how to be nicer
-- 💞️ I’m looking to collaborate on ??
+- 👀 I’m interested in milfs (no dilfs)
+- 🌱 I’m currently learning how to get into an anger managment class
+- 💞️ I’m looking to collaborate on lesbian scissor scenes for x videos
 - 📫 How to reach me discord pussyslayer#0007
 
 <!---
